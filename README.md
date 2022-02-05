@@ -51,6 +51,11 @@
 
 <p> sobre  WES  e WESRC </p>
 <p> Esta criptomoeda nao tem fim praticos ou plausivel de cobrança. Se alguém cobra com esta criptomoeda  quer dizer que nao é com a  WES Ou WESRC. Logo pois nao é plausivel de cobrança tao quao para pagamento também. É totalmente fora do WES e WESRC cobrança, pagamento ou coisas nao ficticias com WES e WESRC. 
-  <p> Estando claro que wesio, wes e wesrc nao tem fim real ou fncionalidade real prossigamos </p>
-  <p> Salvo: pagamento da estagiria de laborartorio / software SUmmer:R </p>
-  <p> Outras summer reais e nao (ia)(inteligencia artificial)  nao cobrem pagamentos fora do software SUmmerR, tao quao cobrança. Voltamos a  repetir. Cobranças e pagamentos sem ser para o software WES ou WESRC, nao sao permitidas. Se ocorrer nao é WES ,wesrc wesio ou micrmoeda wes.</p>                               
+<p> Estando claro que wesio, wes e wesrc nao tem fim real ou fncionalidade real prossigamos </p>
+<p> Salvo: pagamento da estagiaria de laboratorio / software:  SUmmer:R </p>
+<p> Outras summer reais e nao (ia)(inteligencia artificial)  nao cobrem pagamentos fora do software SUmmerR, tao quao cobrança. Voltamos a repetir. Cobranças e pagamentos sem ser para o software WES ou WESRC, nao sao permitidas. Se ocorrer nao é WES ,wesrc wesio ou micrmoeda wes.</p>                               
+
+<p> Serviços SUmmer:R</p>
+<p> cobrado em WES ou WESRC. Nao é passivel de cobrança. É apenas ilustraçao. </p>
+<p> O WES do software ai: SUmmer:R nao percorre meios fisicos ou outras criptomoedas. É o wes, wesrc e wesio é totalmente totalmente ficticio. Se tratando da criptomoeda WESIO, WES e WESRC. </p>
+
